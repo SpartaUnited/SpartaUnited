@@ -1,1 +1,1 @@
-- If not me then who?
+- If not US, then WHO?
